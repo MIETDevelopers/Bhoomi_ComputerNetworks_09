@@ -1,2 +1,0 @@
-# 2020a1r033_muskanraina_COM-512_computernetworkslab
-2020a1r033_muskanraina_COM-512_computernetworkslab
